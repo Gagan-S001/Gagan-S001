@@ -13,7 +13,7 @@
 
 - ⚡ Fun fact **Playing Games, Music**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:gaganofficialcd@gmail.com</h3>
 <p align="left">
 </p>
 
