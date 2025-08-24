@@ -9,8 +9,6 @@
 
 - 💬 Ask me about **SQL,PowerBI**
 
-- 📫 How to reach me **gaganofficialcd@gmail.com**
-
 - ⚡ Fun fact **Playing Games, Music**
 
 <h3 align="left">Connect with me:gaganofficialcd@gmail.com</h3>
